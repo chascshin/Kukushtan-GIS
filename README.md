@@ -1,1 +1,0 @@
-# Kukushtan-GIS
